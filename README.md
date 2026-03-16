@@ -1,4 +1,4 @@
-## Welcome 2 Builder Brotherz Pizza ! enjoy ur stayy :DD
+## Welcome 2 Builder Brotherz Pizza ! we got tha best pizza in all of Robloxia !!!
 
 hioo yall
 
